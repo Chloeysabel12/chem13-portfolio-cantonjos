@@ -1,0 +1,6 @@
+BYJU (n.d.). uses of citric acid. https://byjus.com/chemistry/uses-of-citric-acid/
+Salihu, R., Razak, S., Zawawi, N. A., Kadir, M., Isamil, N., Jusoh, N., Mohamad, M., & Nayan, N. (2021). Citric acid: a green cross-linker of biomaterial for biomedical applications. https://www.sciencedirect.com/science/article/abs/pii/S0014305721000057
+Cleveland Clinic. (2022). Lactic acid. https://my.clevelandclinic.org/health/body/24521-lactic-acid
+Martinez, F., Balciunas, E., Salgado, J., Gonzales, J., Converti, A., & Oliveira, R. (2013). Lactic acid properties, applications and production: A review. https://www.sciencedirect.com/science/article/abs/pii/S0924224412002683
+Tan, H.W., Aziz, A.R., & Aroua, M.K. (2013). Glycerol production and its applications as a raw material: A review. https://www.sciencedirect.com/science/article/abs/pii/S1364032113004127
+Venkat, S.R. (2025). What Is Pure Glycerin?. https://www.webmd.com/beauty/what-is-pure-glycerin
