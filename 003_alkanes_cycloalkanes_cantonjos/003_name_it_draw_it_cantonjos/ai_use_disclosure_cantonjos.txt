@@ -1,0 +1,1 @@
+This project utilizes Gemini AI tool to optimize card text wording and clarify IUPAC nomenclature rules in naming. All AI-assisted content is fully reviewed and verified to ensure accuracy.
